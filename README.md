@@ -1,1 +1,1 @@
-# Celebal_InternshipPprojects
+# Celebal_Internship_Projects
